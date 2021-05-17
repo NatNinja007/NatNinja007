@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NatNinja007
-- 👀 I’m interested in leading a team to achieve success...
+- 👀 I’m interested in leading brilliant teams to achieve success
 - 🌱 I’m currently learning about personal development 
-- 💞️ I’m looking to collaborate on innovative projects
+- 💞️ I’m looking to collaborate on innovative projects 
 - 📫 How to reach me on natamoa@nyahbingi.com
 
 <!---
